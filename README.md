@@ -18,9 +18,7 @@
 
 <!-- [ARABIC LANGUAGE 2023 2](https://www.youtube.com/playlist?list=PL3jfn-ze5yL2oA2PP9U9dCddFmWiLPajY) -->
 
-[Seerat un Nabi & Hadith by Engineer Usman Ali](https://www.youtube.com/playlist?list=PL3jfn-ze5yL1fZscOrY03cfZ0heaWc11A)
-
-[Seerat un Nabi by Sheikh Abdul Hannan](https://www.youtube.com/playlist?list=PL3jfn-ze5yL2XN7kreU0rGRR3arsrvk7l)
+[Seerat un Nabi & Hadith by Engineer Usman Ali 2](https://www.youtube.com/playlist?list=PL3jfn-ze5yL1fZscOrY03cfZ0heaWc11A)
 
 [Tarjuma Tafseer by Engineer Usman Ali 2021](https://www.youtube.com/playlist?list=PL3jfn-ze5yL2jJYuBv93RH-n4qMcVqx9f)
 
