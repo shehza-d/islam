@@ -1,18 +1,24 @@
 # Islam
 
-1. - [ ] [Bayan ul Quran (Audio)](https://youtube.com/playlist?list=PLN5NkUdaF03i2YxYkzZxO3HjALil8_0Pi)
+- [ ] [Bayan ul Quran (Audio)](https://youtube.com/playlist?list=PLN5NkUdaF03i2YxYkzZxO3HjALil8_0Pi)
 
-1. - [ ] [Seerah lecture Dr Yasir (Audio)](https://music.youtube.com/playlist?list=PLAEA99D24CA2F9A8F)
+- [ ] [Seerah lecture Dr Yasir (Audio)](https://music.youtube.com/playlist?list=PLAEA99D24CA2F9A8F)
 
-1. - [ ] [Lisan ul Quran by Amir Sohail](https://youtube.com/playlist?list=PLmcMQH9TZ96D71X-X24d1ZNYtYDkn_6Ul)
+- [ ] [Lisan ul Quran by Amir Sohail](https://youtube.com/playlist?list=PLmcMQH9TZ96D71X-X24d1ZNYtYDkn_6Ul)
 
-1. - [ ] [IMS (Video)](https://youtube.com/@IMSPRODUCTIONSOFFICIAL)
+- [ ] Dream BIG Arabic by Ustadh Nouman
 
-1. - [ ] [Arabic Role model (Video) Understand Quran the Easy Way (2023)](https://www.youtube.com/playlist?list=PL3jfn-ze5yL2Ht1Ac8aTQPywO1Q3rDbz1)
+  - [ ] [Youtube 1](https://www.youtube.com/playlist?list=PLHezZgRW6Y8K0Y3Q39uqCrNbp6ek3kp_m) | [site](https://dream.bayyinahtv.com)
+  - [ ] [Youtube 2](https://www.youtube.com/playlist?list=PLutdSTmJ7bAIApzbo3C9vu1eWsMh2ZyUj) | [site](https://bayyinahtv.com/dream-big)
+  - [ ] [Resources](https://motivatedsisters.com/2020/07/07/dream-worldwide-documents)
 
-1. - [ ] [Seerat un Nabi by Sheikh Abdul Hannan](https://www.youtube.com/playlist?list=PL3jfn-ze5yL2XN7kreU0rGRR3arsrvk7l)
+- [ ] [IMS (Video)](https://youtube.com/@IMSPRODUCTIONSOFFICIAL)
 
-1. - [ ] [Arabic Language 2021 1](https://www.youtube.com/playlist?list=PL3jfn-ze5yL0LE1BSFM0wtwSHb5U2VBtx)
+- [ ] [Arabic Role model (Video) Understand Quran the Easy Way (2023)](https://www.youtube.com/playlist?list=PL3jfn-ze5yL2Ht1Ac8aTQPywO1Q3rDbz1)
+
+- [ ] [Seerat un Nabi by Sheikh Abdul Hannan](https://www.youtube.com/playlist?list=PL3jfn-ze5yL2XN7kreU0rGRR3arsrvk7l)
+
+- [ ] [Arabic Language 2021 1](https://www.youtube.com/playlist?list=PL3jfn-ze5yL0LE1BSFM0wtwSHb5U2VBtx)
 
 ---
 
